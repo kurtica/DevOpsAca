@@ -12,6 +12,6 @@ Jahodky su:
 
 * dozrete
 
-
+Teraz mam chut na jahodky :D
 
 ***Kurtica***
