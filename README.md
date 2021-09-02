@@ -6,7 +6,7 @@ Nas **prvy** devops project
 
 1. prvy
 2. druhy
-3. treti
+
 
 *Kurtica*
 
