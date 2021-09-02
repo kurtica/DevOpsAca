@@ -12,6 +12,6 @@ Jahodky su:
 
 * dozrete
 
-Asi si idem kupit jahodky :)
+Teraz mam chut na jahodky :D Asi si idem kupit jahodky :)
 
 ***Kurtica***
