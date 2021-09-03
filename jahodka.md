@@ -10,7 +10,7 @@ Jahodky su:
 
 * cervene
 
-* dozrete
+* dozrete A ZMENENE
 
 Teraz mam chut na jahodky :D Asi si idem kupit jahodky :)
 
