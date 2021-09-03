@@ -8,7 +8,7 @@ Nas **prvy** devops project
 2. druhy
 
 
-> Text v bloku
+> Text v bloku A TU NASTALA ZMENA
 > 
 > pokracuje tu
 > 
